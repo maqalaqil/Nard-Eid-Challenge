@@ -4,7 +4,7 @@
 
 **To:** The Legendary Nard Team  
 **From:** Abu Salah (your mysterious holiday hacker)  
-**Date:** Eid Al-Fitr 1446  
+**Date:** Eid Al-Fitr   
 **Difficulty:** 🧠 Extreme – Even ChatGPT won’t help you (or will it?)
 
 ---
